@@ -1,1 +1,5 @@
 [# bana bak](https://gemini.google.com/share/b25f33083ae8)
+[# bana bak2](https://chat.z.ai/space/s0vzn93frf61-ppt)
+[# bana bak](https://gemini.google.com/share/b25f33083ae8)
+[# bana bak](https://gemini.google.com/share/b25f33083ae8)
+[# bana bak](https://gemini.google.com/share/b25f33083ae8)
