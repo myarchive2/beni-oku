@@ -34,3 +34,18 @@
 
 [# teknofest drone ](https://www.teknofest.org/tr/yarismalar/teknofest-drone-sampiyonasi/)
 
+
+[# diy ](https://www.youtube.com/watch?v=iz7-qkG3P4A)
+
+
+[# arduino ](https://www.youtube.com/watch?v=EcMFtLT94wg)
+
+
+[# math1-1 ](https://drive.google.com/file/d/16EhLemgINvUMMP7lpjP2tXVuFv58xuXA/view)
+
+
+[# boş ](google.com)
+
+
+[# teknofest ](https://www.teknofest.org/tr/yarismalar/)
+
