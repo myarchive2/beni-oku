@@ -25,8 +25,12 @@
 
 
 [# teknofest roket ](https://www.teknofest.org/tr/yarismalar/roket-yarismasi/)
+
+
 [# teknofest su6 ](https://www.teknofest.org/tr/yarismalar/insansiz-su-alti-sistemleri-yarismasi/)
 
 [# teknofest otonom araç](https://www.teknofest.org/tr/yarismalar/robotaksi-binek-otonom-arac-yarismasi/)
+
+
 [# teknofest drone ](https://www.teknofest.org/tr/yarismalar/teknofest-drone-sampiyonasi/)
 
