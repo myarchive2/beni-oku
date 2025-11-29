@@ -1,11 +1,21 @@
 [# bana bak](https://gemini.google.com/share/b25f33083ae8)
 [# bana bak2](https://chat.z.ai/space/s0vzn93frf61-ppt)
-[# bana bak](https://chat.z.ai/space/b0t3aay6wr10-ppt)
-[# bana bak](https://chat.z.ai/space/p093has2mw91-ppt)
-[# bana bak]()
-[# bana bak](https://github.com/MuslimEngineer/rppg)
+[# bana bak3](https://chat.z.ai/space/b0t3aay6wr10-ppt)
+[# bana bak4](https://chat.z.ai/space/p093has2mw91-ppt)
+[# rppg](https://github.com/MuslimEngineer/rppg)
 [# rppg4windows](https://drive.google.com/file/d/1zLVKrdm_7laA2JMKVXS8gkLw1ZmdPJLF/view?pli=1)
-
-[# teknofest](https://www.teknofest.org/tr/yarismalar/saglikta-yapay-zeka-yarismasi/)
 [# yusufçuk ](https://www.google.com/search?q=robot+yusuf%C3%A7uk&source=lnms&sa=X&ved=2ahUKEwin5ciy1u_7AhWLSfEDHaqMDIgQ_AUoAXoECAIQAw&biw=1600&bih=918&dpr=0.9&udm=2)
-[# bana bak](https://gemini.google.com/share/b25f33083ae8)
+
+[# teknofest yz](https://www.teknofest.org/tr/yarismalar/saglikta-yapay-zeka-yarismasi/)
+
+[# teknofest tarım](https://www.teknofest.org/tr/yarismalar/tarim-teknolojileri-yarismasi/)
+
+[# teknofest siha](https://www.teknofest.org/tr/yarismalar/savasan-iha-yarismasi/)
+
+
+[# teknofest roket ](https://www.teknofest.org/tr/yarismalar/roket-yarismasi/)
+[# teknofest su6 ](https://www.teknofest.org/tr/yarismalar/insansiz-su-alti-sistemleri-yarismasi/)
+
+[# teknofest otonom araç](https://www.teknofest.org/tr/yarismalar/robotaksi-binek-otonom-arac-yarismasi/)
+[# teknofest drone ](https://www.teknofest.org/tr/yarismalar/teknofest-drone-sampiyonasi/)
+
