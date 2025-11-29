@@ -6,6 +6,6 @@
 [# bana bak](https://github.com/MuslimEngineer/rppg)
 [# rppg4windows](https://drive.google.com/file/d/1zLVKrdm_7laA2JMKVXS8gkLw1ZmdPJLF/view?pli=1)
 
-[# bana bak](https://gemini.google.com/share/b25f33083ae8)
+[# teknofest](https://www.teknofest.org/tr/yarismalar/saglikta-yapay-zeka-yarismasi/)
 [# bana bak](https://gemini.google.com/share/b25f33083ae8)
 [# bana bak](https://gemini.google.com/share/b25f33083ae8)
