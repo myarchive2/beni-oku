@@ -1,9 +1,20 @@
 [# bana bak](https://gemini.google.com/share/b25f33083ae8)
+
+
 [# bana bak2](https://chat.z.ai/space/s0vzn93frf61-ppt)
+
+
 [# bana bak3](https://chat.z.ai/space/b0t3aay6wr10-ppt)
+
+
 [# bana bak4](https://chat.z.ai/space/p093has2mw91-ppt)
+
+
 [# rppg](https://github.com/MuslimEngineer/rppg)
+
+
 [# rppg4windows](https://drive.google.com/file/d/1zLVKrdm_7laA2JMKVXS8gkLw1ZmdPJLF/view?pli=1)
+
 [# yusufçuk ](https://www.google.com/search?q=robot+yusuf%C3%A7uk&source=lnms&sa=X&ved=2ahUKEwin5ciy1u_7AhWLSfEDHaqMDIgQ_AUoAXoECAIQAw&biw=1600&bih=918&dpr=0.9&udm=2)
 
 [# teknofest yz](https://www.teknofest.org/tr/yarismalar/saglikta-yapay-zeka-yarismasi/)
