@@ -7,5 +7,5 @@
 [# rppg4windows](https://drive.google.com/file/d/1zLVKrdm_7laA2JMKVXS8gkLw1ZmdPJLF/view?pli=1)
 
 [# teknofest](https://www.teknofest.org/tr/yarismalar/saglikta-yapay-zeka-yarismasi/)
-[# bana bak](https://gemini.google.com/share/b25f33083ae8)
+[# yusufçuk ](https://www.google.com/search?q=robot+yusuf%C3%A7uk&source=lnms&sa=X&ved=2ahUKEwin5ciy1u_7AhWLSfEDHaqMDIgQ_AUoAXoECAIQAw&biw=1600&bih=918&dpr=0.9&udm=2)
 [# bana bak](https://gemini.google.com/share/b25f33083ae8)
