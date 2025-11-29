@@ -1,13 +1,13 @@
-[# bana bak](https://gemini.google.com/share/b25f33083ae8)
+[# klavye](https://gemini.google.com/share/b25f33083ae8)
 
 
-[# bana bak2](https://chat.z.ai/space/s0vzn93frf61-ppt)
+[# klavye](https://chat.z.ai/space/s0vzn93frf61-ppt)
 
 
-[# bana bak3](https://chat.z.ai/space/b0t3aay6wr10-ppt)
+[# sinyal1](https://chat.z.ai/space/b0t3aay6wr10-ppt)
 
 
-[# bana bak4](https://chat.z.ai/space/p093has2mw91-ppt)
+[# sinyal2](https://chat.z.ai/space/p093has2mw91-ppt)
 
 
 [# rppg](https://github.com/MuslimEngineer/rppg)
