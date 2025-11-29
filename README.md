@@ -2,4 +2,10 @@
 [# bana bak2](https://chat.z.ai/space/s0vzn93frf61-ppt)
 [# bana bak](https://chat.z.ai/space/b0t3aay6wr10-ppt)
 [# bana bak](https://chat.z.ai/space/p093has2mw91-ppt)
+[# bana bak]()
+[# bana bak](https://github.com/MuslimEngineer/rppg)
+[# bana bak](https://gemini.google.com/share/b25f33083ae8)
+
+[# bana bak](https://gemini.google.com/share/b25f33083ae8)
+[# bana bak](https://gemini.google.com/share/b25f33083ae8)
 [# bana bak](https://gemini.google.com/share/b25f33083ae8)
