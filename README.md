@@ -47,7 +47,7 @@
 [# math1-1 ](https://drive.google.com/file/d/16EhLemgINvUMMP7lpjP2tXVuFv58xuXA/view)
 
 
-[# boş ](https://google.com)
+[# EMP ](https://www.youtube.com/watch?v=iz7-qkG3P4A)
 
 
 [# teknofest ](https://www.teknofest.org/tr/yarismalar/)
