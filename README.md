@@ -52,3 +52,5 @@
 
 [# teknofest ](https://www.teknofest.org/tr/yarismalar/)
 
+[# PUZA ] (https://github.com/m83534121-cell/mathe1Links?tab=readme-ov-file)
+
