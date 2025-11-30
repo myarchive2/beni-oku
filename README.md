@@ -47,7 +47,7 @@
 [# math1-1 ](https://drive.google.com/file/d/16EhLemgINvUMMP7lpjP2tXVuFv58xuXA/view)
 
 
-[# boş ](google.com)
+[# boş ](https://google.com)
 
 
 [# teknofest ](https://www.teknofest.org/tr/yarismalar/)
