@@ -38,7 +38,7 @@
 [# teknofest drone ](https://www.teknofest.org/tr/yarismalar/teknofest-drone-sampiyonasi/)
 
 
-[# diy ](https://www.youtube.com/watch?v=iz7-qkG3P4A)
+[# gf ](https://drive.google.com/file/d/1SCWGLTNk3f3HZz5nVYrllVhw6zUzHo83/view?usp=sharing)
 
 
 [# arduino ](https://www.youtube.com/watch?v=EcMFtLT94wg)
