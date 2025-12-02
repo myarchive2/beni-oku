@@ -27,6 +27,8 @@
 [# teknofest siha](https://www.teknofest.org/tr/yarismalar/savasan-iha-yarismasi/)
 
 
+
+
 [# teknofest roket ](https://www.teknofest.org/tr/yarismalar/roket-yarismasi/)
 
 
@@ -35,7 +37,8 @@
 [# teknofest otonom araç](https://www.teknofest.org/tr/yarismalar/robotaksi-binek-otonom-arac-yarismasi/)
 
 
-[# teknofest drone ](https://www.teknofest.org/tr/yarismalar/teknofest-drone-sampiyonasi/)
+[# teknofest drone ](https://drive.google.com/drive/folders/1qOfO5RyVLN0zQ5Eob6Q0J4L-TMnqcsQY)
+[# teknofest ortaokul yarışmaları ](https://www.teknofest.org/tr/yarismalar/)
 
 
 [# gf ](https://drive.google.com/file/d/1SCWGLTNk3f3HZz5nVYrllVhw6zUzHo83/view?usp=sharing)
