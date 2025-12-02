@@ -23,6 +23,8 @@
 [# teknofest yz](https://www.teknofest.org/tr/yarismalar/saglikta-yapay-zeka-yarismasi/)
 
 [# teknofest tarım](https://www.teknofest.org/tr/yarismalar/tarim-teknolojileri-yarismasi/)
+[# teknofest tarım](https://cdn.t3kys.com/media/upload/userFormUpload/J3stIqTSFyYSSVBkYdb5S7vFXUNHkdqv.pdf)
+
 
 [# teknofest siha](https://www.teknofest.org/tr/yarismalar/savasan-iha-yarismasi/)
 
@@ -30,6 +32,8 @@
 
 
 [# teknofest roket ](https://www.teknofest.org/tr/yarismalar/roket-yarismasi/)
+[# teknofest roket ](https://cdn.t3kys.com/media/upload/userFormUpload/DijOxM91ydDrVS8yIgcujn3SW96N9zxL.pdf)
+
 
 
 [# teknofest su6 ](https://www.teknofest.org/tr/yarismalar/insansiz-su-alti-sistemleri-yarismasi/)
