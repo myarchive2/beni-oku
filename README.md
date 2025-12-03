@@ -5,7 +5,7 @@
 
 
 
-[# sinyal2](https://chat.z.ai/space/p093has2mw91-ppt)
+[# sinyal](https://chat.z.ai/space/p093has2mw91-ppt)
 
 
 [# rppggit](https://github.com/MuslimEngineer/rppg)
