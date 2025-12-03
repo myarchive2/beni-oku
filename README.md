@@ -4,8 +4,6 @@
 [# klavye](https://chat.z.ai/space/s0vzn93frf61-ppt)
 
 
-[# sinyal1](https://chat.z.ai/space/b0t3aay6wr10-ppt)
-
 
 [# sinyal2](https://chat.z.ai/space/p093has2mw91-ppt)
 
