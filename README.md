@@ -49,7 +49,7 @@
 
 
 [# teknofest drone ](https://drive.google.com/drive/folders/1qOfO5RyVLN0zQ5Eob6Q0J4L-TMnqcsQY)
-[# teknofest ortaokul yarışmaları ](https://www.teknofest.org/tr/yarismalar/)
+[# github link yzenginner ](https://github.com/YZEngineer/faydaliurl/)
 
 
 [# gudumlu fuze ](https://drive.google.com/file/d/1SCWGLTNk3f3HZz5nVYrllVhw6zUzHo83/view?usp=sharing)
@@ -67,4 +67,5 @@
 [# teknofest ](https://www.teknofest.org/tr/yarismalar/)
 
 [# PUZA ](https://github.com/m83534121-cell/mathe1Links?tab=readme-ov-file)
+
 
